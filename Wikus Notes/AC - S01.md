@@ -20,11 +20,7 @@ Kegger is Temp Barkeep @ Jackenape
 
 Brass Bob is a Cunty miner with his crew that keep trying to say that Gideon is in his spot. 
 
-<tts>Todd is the guard who fucked around and found out, got kicked by a horse and now has a case of mild retardation. </tts>
-✅ TTS created:
-
-![[AC - S01.wav]]
-
+Todd is the guard who fucked around and found out, got kicked by a horse and now has a case of mild retardation.
 
 **Izzy not in town she was sent to Procampur**
 
