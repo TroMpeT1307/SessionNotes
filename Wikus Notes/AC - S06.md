@@ -22,7 +22,7 @@ Someone hunched over arms unnaturally long with glowing eyes
 `Another one take the path reach out and wield the power`
 
 Gideon used new found skill to message  friends 
-` Should I tell them? Why am I keeping this a secret`
+`Should I tell them? Why am I keeping this a secret`
 
 --- 
 Guards name is Steven and he met 'Finn'
