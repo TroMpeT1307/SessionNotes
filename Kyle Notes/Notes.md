@@ -6,3 +6,5 @@ Tropical- Beached sloop.
 Darren island- Barren- Beached sloop.
 Deep South- Merchant ship went down in a storm close to an island with a volcano.
 Mining opportunities- cast spell to let pickaxe and giggles know about spots.
+
+James and Gideon are taking part in the tournament- remember to bring Turnble.
