@@ -9,4 +9,3 @@
 | +150 GP  | Lute Job Listing                        |
 | -8 SP    | Round of Drinks for everyone            |
 |          |                                         |
-|          |                                         |
