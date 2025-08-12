@@ -9,7 +9,7 @@ Some **700,000 GP** worth of transactions in the following regions
 - Port Ivory 
 - Port Ebony 
 - Nori
-- Prancevale
+- Planesvale
 - Beachfront
 - Aurora
 
