@@ -1,5 +1,5 @@
 [[Party Fund Ledger |Party Fund Total]]:
-72 GP | 0 SP | 0 CP 
+102 GP | 0 SP | 0 CP 
 
 3x Fake Gems
 Ruby (30 gp)
