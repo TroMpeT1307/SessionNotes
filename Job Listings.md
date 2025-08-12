@@ -1,5 +1,5 @@
 ## Procampur
-- [ ] Looking for Lute, Prize at Arena (**80GP - 150GP**)
+- [x] Looking for Lute, Prize at Arena (**80GP - 150GP**)
 - [x] Stolem toys (**7 CP**)
 	- [x] Teddy bear
 	- [x] Ball
