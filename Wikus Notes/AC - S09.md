@@ -1,4 +1,4 @@
-Champion Ruk  Fucked Us up. 
+Champion Ruk  Fucked James and Gideon up. 
 
 James and Gideon Won 301 GP (includes the crown coin that Amsel added)
 
