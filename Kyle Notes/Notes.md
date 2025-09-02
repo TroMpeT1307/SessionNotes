@@ -8,3 +8,8 @@ Deep South- Merchant ship went down in a storm close to an island with a volcano
 Mining opportunities- cast spell to let pickaxe and giggles know about spots.
 
 James and Gideon are taking part in the tournament- remember to bring Turnble.
+
+Litalis might be working an angle on Anderson or the cargo.
+
+Raven's Bell guards emblem of a bell and a bird on it.
+
