@@ -18,3 +18,4 @@ Holti & Nolti spoke about letters that people write to no one and get nosebleeds
 Montra mentioned that he thinks its a very powerful and advance *Modify Memory spell* that could be stored in a **Mage Eye** (Green Crystal that is capable of storing spells). 
 
 The Mayor of Procampur sent cargo to the Flumph. The ship is anchored in the harbour if we want to get onto it we might need to stage a party with the crew. 
+
