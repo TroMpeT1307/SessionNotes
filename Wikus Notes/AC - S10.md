@@ -1,5 +1,5 @@
 ### Angstroms Theory 
-form of magical science thats fucked up so bad that Mystra herself put a net around it or some shit like that
+form of magical science that's fucked up so bad that Mystra herself put a net around it or some shit like that
 
 Anderson want to drop something off at the at the *Dragon Isles* 
 
