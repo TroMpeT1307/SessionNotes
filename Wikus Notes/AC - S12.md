@@ -36,3 +36,5 @@ Candles and Fire seems Fresh and not as old as all the blood. Kurt has no Eyes a
 Gray Maw attacked the Ducks. 
 
 Gideon passed out and turned pale and had no nose.
+
+Ended on a Threat from Josie
