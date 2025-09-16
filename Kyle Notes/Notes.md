@@ -13,3 +13,5 @@ Litalis might be working an angle on Anderson or the cargo.
 
 Raven's Bell guards emblem of a bell and a bird on it.
 
+Ruby and Amber and 25 Gp.
+
