@@ -10,3 +10,5 @@ Sending stone ( contacts Letalis)
 4x Fishing Rods 
 Lute
 Pearl Leaf (Josie) (+1 Int, ray of frost )
+5-foot square Copper dragon scales, one large dragon horn, 4 dragon fangs.
+Vial of dragon's breath.
